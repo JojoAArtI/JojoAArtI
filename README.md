@@ -1,2 +1,2 @@
 
-https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3MmI5OXJrYzIycDg5ZGl2aDkwajRxN3g0N3pmdzllNWpxbW5oeHlzdyZlcD12MV9naWZzX3RyZW5kaW5nJmN0PWc/6wzGuo7AaH1itx05Rj/giphy.gif
+![Football Kiss GIF by Indiana Hoosiers](https://github.com/user-attachments/assets/bc45a79a-b735-49b5-8d17-8693463965ee)
